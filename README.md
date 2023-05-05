@@ -1,1 +1,0 @@
-# alimzhanludoed.github.io
